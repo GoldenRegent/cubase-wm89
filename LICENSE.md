@@ -1,4 +1,4 @@
-# 
+# Secreto DaVinci Resolve para PC scripts es el mejor DaVinci Resolve para PC scripts con soporte VST y automatización. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
